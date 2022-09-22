@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Mel/Miyuki
+- 👀 I’m interested in video games and dancing
+- 🌱 I’m currently learning to sing
